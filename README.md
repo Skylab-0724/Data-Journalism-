@@ -1,1 +1,2 @@
 # Data-Journalism-
+I choose this because when I am on a plane I often wonder whether it is acceptable to  wake a passenger up if you are trying to go to the bathroom or get something from my carry-on. I agree with the small group of people that it is somewhat rude to continously get up the entire plane ride because they could have essentially just bought a plane seat closer to the aisle. I find it interesting that the majority does not think it is rude whatsoever, which my chart reveals.
